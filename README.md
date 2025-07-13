@@ -5,6 +5,8 @@ You answered 1. You exist. This probably exists in some way or another, and some
 ### Cult of Rule 1.0
 #### Those Who Believe
 
+---
+
 Now, please answer the following series of binary questions. Please only answer the question at hand and give no consideration to any previous questions or possible next questions. 
 
 This is a test, designed to produce an emotional response....
