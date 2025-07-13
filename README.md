@@ -1,7 +1,7 @@
 # Cult of 1.0
-### You Are Here! We Are Here! I Am Here! 
+### You Are Here! We Are Here! I Am Here!
 
-Welcome! It's an honor to have you as a like-minded friend. You and I believe exactly the same thing so far. I have taken the liberty of creating and documenting my own path. I invite you to follow along and feel free to create a branch when we cease to agree on a topic. In order to be in Group 1.0 though, there are some ground rules. You may believe anything in this thread 100%, but if you violate any of the rules in this PRIMARY group, you will be asked to account for your violation and be subject to our ruling.  (Note to self: Create a judicial system). 
+Welcome! It's an honor to have you as a like-minded friend. You and I believe exactly the same thing so far. I have taken the liberty of creating and documenting my own path. I invite you to follow along and feel free to create a branch when we cease to agree on a topic. In order to be in Group 1.0 though, there are some ground rules. You hold true that everything on this page (except for options) is true. Also (very important) if you violate any of the rules in this PRIMARY group, you will be asked to account for your violation and be subject to our ruling.  (Note to self: Create a judicial system). You will also be subject to additional rules which are approved by (dang, I really need a judicial system set up) - let's say that rules in subgroups need to be approved by X percent, where the percentage is set by the parent group. Can be 51% or 2/3 or even 100% if need be. 
 
 If you want to skip ahead, we can get to the point you want to get to. Interested in Government Financial Systems and Responsibilities? Go there. Want to work on what Our stance on Climate Change is? Join that group. The early parts of this discovery process involves a lot of zeros and ones, so after the brief list of Rules, we'll put some quick links to some deeeeeep core beliefs enmass.   
 
