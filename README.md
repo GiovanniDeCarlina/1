@@ -1,4 +1,4 @@
-1
+# 1
 
 You answered 1. You exist. This probably exists in some way or another, and some things probably don't exist. Welcome to the Cult of Rule 1.0 - Those Who Believe.
 
