@@ -1,6 +1,9 @@
 # 1
 
-You answered 1. You exist. This probably exists in some way or another, and some things probably don't exist. Welcome to the Cult of Rule 1.0 - Those Who Believe.
+You answered 1. You exist. This probably exists in some way or another, and some things probably don't exist. Welcome: 
+
+### Cult of Rule 1.0
+#### Those Who Believe
 
 Now, please answer the following series of binary questions. Please only answer the question at hand and give no consideration to any previous questions or possible next questions. 
 
